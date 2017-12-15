@@ -1,2 +1,36 @@
 # potato-idioms
-Real and Invented Potato-based Idioms
+
+- Real and Invented Potato-based Idioms
+- Now it’s dangerous legs in the potatoes!
+- The potato is always larger in the next field.
+- One potato in the hand is worth two in the ground. (note: potatoes reproduce in the ground!)
+- You have sown your last potato.
+- This is just small potatoes.
+- A potato saved is a potato earned
+- Don’t look a gift potato in the eye
+- Put your potato where your mouth is
+- A potato for your thoughts
+- Hoeing the wrong potato field
+- Eat the midnight potato (staying up late)
+- Don’t cry over spilled potatoes
+- Don’t put all your potatoes in one sack
+- Kill two birds with one potato
+- You're the 🥔 of my eye
+- When potatoes fly
+- Potato potahto
+- Be the potato you wish to see in the world
+- Last one there's a rotten potato
+- I'm a meat and potatoes kind of guy
+- Loose potatoes sink ships
+- There is no potato
+- It's time to pay the potato picker
+- A potato for an eye leaves the whole world blind
+- People in glass houses shouldn't throw potatoes.
+- Break a potato!
+- Don't eat a potato that your ass can't cash
+- Put that in your potato and smoke it
+- Yams is just boneless potatoes
+- If ifs and ans were candy and yams, the tinker would eat his potato.
+- Today’s sprout is tomorrow's potato
+- Once a potato, always a potato
+- Walking on potato skins (egg shells)
