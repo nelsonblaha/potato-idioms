@@ -1,4 +1,4 @@
-# potato-idioms
+# Real and converted potato-based idioms
 
 - Now it’s dangerous legs in the potatoes!
 - The potato is always larger in the next field.
