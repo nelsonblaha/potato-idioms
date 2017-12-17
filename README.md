@@ -1,6 +1,5 @@
 # potato-idioms
 
-- Real and Invented Potato-based Idioms
 - Now it’s dangerous legs in the potatoes!
 - The potato is always larger in the next field.
 - One potato in the hand is worth two in the ground. (note: potatoes reproduce in the ground!)
