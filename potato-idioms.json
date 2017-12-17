@@ -1,0 +1,27 @@
+[
+ 	{
+ 		"idiom": {
+ 			"sv": "Nu är det farliga ben i potatisen!",
+ 			"en": "Now it’s dangerous legs in the potatoes!"
+ 		}
+ 	},
+ 	{
+ 		"idiom": "Put that in your potato and smoke it.",
+ 		"origin: "Put that in your pipe and smoke it."
+ 	},
+ 	{
+ 		"idiom": "The potato is always larger in the next field.",
+ 		"origin: "The grass is always greener on the other side"
+ 	},
+ 	{
+ 		"idiom": "One potato in the hand is worth two in the ground.",
+ 		"origin": "A bird in the hand is worth two in the bush.",
+ 		"notes": "potatoes really do reproduce in the ground"
+	},
+	{
+		"idiom": {
+			"sv": "Han har satt sin sista potatis",
+			"en": "He has sown his last potato."
+		}
+	}
+]
