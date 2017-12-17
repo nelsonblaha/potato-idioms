@@ -17,7 +17,7 @@
 - You're the 🥔 of my eye
 - When potatoes fly
 - Potato potahto
-- Be the potato you wish to see in the world
+- Be the potato you wish to see in the world (alternate: Be the change you wish to see in the potato)
 - Last one there's a rotten potato
 - I'm a meat and potatoes kind of guy
 - Loose potatoes sink ships
