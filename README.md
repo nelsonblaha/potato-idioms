@@ -1,5 +1,3 @@
-# Real and converted potato-based idioms
-
 - Now it’s dangerous legs in the potatoes!
 - The potato is always larger in the next field.
 - One potato in the hand is worth two in the ground. (note: potatoes reproduce in the ground!)
@@ -33,3 +31,36 @@
 - Today’s sprout is tomorrow's potato
 - Once a potato, always a potato
 - Walking on potato skins (egg shells)
+- Don’t beat about the potato
+- Now the potato is on the other foot
+There is a spectre haunting Europe – the spectre of Potato. [from the German: Ein Gespenst geht um in Europa – das Gespenst des - Kartoffel]
+- Where there is potato, there is resistance.
+- Again I tell you, it is easier for a camel to go through the eye of a potato than for a rich man to enter the kingdom of God.
+- A potato is worth 1,000 words
+- The potato is in your court
+- You can’t have your potato and eat it too
+- You may all go to Hell and I will eat potatoes.
+- There are other potatoes in the sea.
+- The early bird gets the potato
+- Say hello to my little potato.
+- If the potato fits, eat it.
+- Slow and steady wins the potato
+- One man’s trash is another man’s potato.
+- A potato a day keeps the doctor away.
+- The potato in the room
+- A POTATO’S CHANCE IN HELL
+- A few good taters.
+- Damn the potatoes, full speed ahead!
+- Potatoes is money.
+- You can catch more flies with potatoes than you can with vinegar
+- Don’t count your taters ‘til harvest.
+- Apple of the Earth [dependable, unpretentious, and worthy person; kenning for potato]
+- There is no potato.
+- Ceci n'est pas une patate.
+- Mashing the curve. [epidemiology]
+- Ask not what your potato can do for you; ask what you can do for your potato.
+- i herd u liek potatos
+- To be or not to be, that is the potato.
+- There’s more’n one way to skin a potato
+- I wouldn’t touch that with a ten-foot potato.
+- If it walks like a duck, quacks like a duck, looks like a duck, it must be a potato.
