@@ -1,66 +1,66 @@
-- Now it’s dangerous legs in the potatoes!
+- Don’t put all your potatoes in one sack.
 - The potato is always larger in the next field.
-- One potato in the hand is worth two in the ground. (note: potatoes reproduce in the ground!)
+- Don’t look a gift potato in the eye.
+- Put your potato where your mouth is.
+- A potato in the hand is worth two in the ground. (note: potatoes reproduce in the ground!)
+- A potato a day keeps the doctor away.
 - You have sown your last potato.
 - This is just small potatoes.
-- A potato saved is a potato earned
-- Don’t look a gift potato in the eye
-- Put your potato where your mouth is
-- A potato for your thoughts
-- Hoeing the wrong potato field
-- Eat the midnight potato (staying up late)
-- Don’t cry over spilled potatoes
-- Don’t put all your potatoes in one sack
-- Kill two birds with one potato
-- You're the 🥔 of my eye
-- When potatoes fly
-- Potato potahto
-- Be the potato you wish to see in the world (alternate: Be the change you wish to see in the potato)
-- Last one there's a rotten potato
-- I'm a meat and potatoes kind of guy
-- Loose potatoes sink ships
-- There is no potato
-- It's time to pay the potato picker
-- A potato for an eye leaves the whole world blind
+- A potato saved is a potato earned.
+- You can’t have your potato and eat it too.
+- A potato for your thoughts?
+- Last one there's a rotten potato!
+- Loose potatoes sink ships.
+- The early bird gets the potato.
+- When potatoes fly!
+- Hoeing in the wrong potato field.
+- One man’s trash is another man’s potato.
+- Eat the midnight potato. (staying up late)
+- Once a potato, always a potato.
+- Don’t cry over spilled potatoes.
+- Now the potato is on the other foot
 - People in glass houses shouldn't throw potatoes.
-- Break a potato!
-- Don't eat a potato that your ass can't cash
+- The potato in the room
+- Don’t count your taters ‘til harvest.
+- Damn the potatoes, full speed ahead!
+- You can catch more flies with potatoes than you can with beets.
+- A potato is worth 1,000 words.
+- If it walks like a duck, quacks like a duck, looks like a duck, it must be a potato.
 - Put that in your potato and smoke it
-- Yams is just boneless potatoes
-- If ifs and ans were candy and yams, the tinker would eat his potato.
-- Today’s sprout is tomorrow's potato
-- Once a potato, always a potato
+- Kill two birds with one potato
+- The potato is in your court.
+- There are other potatoes in the sea.
+- A potato for an eye leaves the whole world blind
+- You're the 🥔 of my eye
+- There’s more’n one way to skin a potato
+- You may all go to Hell and I will eat potatoes.
+- It's time to pay the potato picker
+- If the potato fits, eat it.
 - Walking on potato skins (egg shells)
 - Don’t beat about the potato
-- Now the potato is on the other foot
-There is a spectre haunting Europe – the spectre of Potato. [from the German: Ein Gespenst geht um in Europa – das Gespenst des - Kartoffel]
-- Where there is potato, there is resistance.
-- Again I tell you, it is easier for a camel to go through the eye of a potato than for a rich man to enter the kingdom of God.
-- A potato is worth 1,000 words
-- The potato is in your court
-- You can’t have your potato and eat it too
-- You may all go to Hell and I will eat potatoes.
-- There are other potatoes in the sea.
-- The early bird gets the potato
-- Say hello to my little potato.
-- If the potato fits, eat it.
-- Slow and steady wins the potato
-- One man’s trash is another man’s potato.
-- A potato a day keeps the doctor away.
-- The potato in the room
+- If ifs and ans were candy and yams, the tinker would eat his potato.
+- To be or not to be, that is the potato.
+- Be the potato you wish to see in the world (alternate: Be the change you wish to see in the potato)
 - A POTATO’S CHANCE IN HELL
+- Again I tell you, it is easier for a camel to go through the eye of a potato than for a rich man to enter the kingdom of God.
 - A few good taters.
-- Damn the potatoes, full speed ahead!
+- i herd u liek potatos, so we put a potato in your potato
+- Ask not what your potato can do for you; ask what you can do for your potato.
+- Don't eat a potato that your ass can't cash
+- Yams is just boneless potatoes
+- Break a potato!
+- Potato, potahto...
+- Today’s sprout is tomorrow's potato
+- I'm a meat and potatoes kind of guy
+- Say hello to my little potato.
+- Slow and steady wins the potato
+- There is no potato
+- Now it’s dangerous legs in the potatoes! (swedish?)
 - Potatoes is money.
-- You can catch more flies with potatoes than you can with vinegar
-- Don’t count your taters ‘til harvest.
 - Apple of the Earth [dependable, unpretentious, and worthy person; kenning for potato]
 - There is no potato.
 - Ceci n'est pas une patate.
-- Mashing the curve. [epidemiology]
-- Ask not what your potato can do for you; ask what you can do for your potato.
-- i herd u liek potatos
-- To be or not to be, that is the potato.
-- There’s more’n one way to skin a potato
 - I wouldn’t touch that with a ten-foot potato.
-- If it walks like a duck, quacks like a duck, looks like a duck, it must be a potato.
+- Mashing the curve. (from epidemiology)
+- Where there is potato, there is resistance.
+- There is a spectre haunting Europe – the spectre of Potato. [from the German: Ein Gespenst geht um in Europa – das Gespenst des Kartoffel]
